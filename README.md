@@ -50,8 +50,9 @@ Hello! I'm Aliyanna, an enthusiastic content creator and student leader passiona
 ## 🏆 Achievements & Certificates
 
 - **🌟 Honor Student:** Recognition for consistent academic excellence since school began
-- **👑 Valedictorian:** Elementary School (Top 1 with highest honors)
+- **👑 Valedictorian:** Elementary School (Top 1 with high honors)
 - **🥇 Consistent Top 1:** Grades 2-6 (Dedication to excellence)
+- SSG PRESIDENT (ELEMENTARY)
 - *More awards and certifications coming as you continue to achieve!*
 
 ---
